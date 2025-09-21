@@ -41,8 +41,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-L3oj8
+4aMmaY6WEF
