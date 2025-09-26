@@ -43,8 +43,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-ZgDtweT6hl
+TlRgS3c
