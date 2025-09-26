@@ -39,12 +39,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-gh0s150
+sno1U83dv
