@@ -27,30 +27,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-FFdog
+YOUqEo7FX
