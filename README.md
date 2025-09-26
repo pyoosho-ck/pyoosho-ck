@@ -35,20 +35,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Gjqg3iiOLJ
+sNRTPoDmql
