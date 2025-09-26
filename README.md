@@ -37,14 +37,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-
-
-Phebz
+YkKocQk
