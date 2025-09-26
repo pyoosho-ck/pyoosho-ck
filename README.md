@@ -37,14 +37,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-
-
-G52Kvm
+6JrDVk
