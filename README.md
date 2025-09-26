@@ -33,24 +33,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-kXNf3xkw6j
+6oWNJpiA
