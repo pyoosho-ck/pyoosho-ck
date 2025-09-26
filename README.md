@@ -29,40 +29,4 @@ Personal GitHub Pages site for pyoosho-ck
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-vyFdhP0x2
-
-
-MtFJvqo6
-
-LRwqm
+b2eJd51
